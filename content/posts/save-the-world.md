@@ -4,8 +4,7 @@ date: 2020-09-06T16:16:31-07:00
 draft: false
 ---
 
-I love movies where the reluctant heroes are desperately trying to save the world against what seem impossible odds.
- First they overcome their fears and limitations, and then they commit. Then they work through their bitter squabbles and commit to each other. I want to be like them. I'm hoping you do too, because the world is in desperate need of heroes right now.
+I love books and movies where the reluctant heroes are desperately trying to save the world against what seem impossible odds. First they have to overcome the shock that it really truly is up to them despite all their fears and limitations. And then they commit. Then they work through their sometimes bitter squabbles and commit to each other. And then they sally forth. I want to be like them. I'm hoping you do too, because the world is in desperate need of heroes right now.
 
 Police kill black men seemingly at will. Large parts of the population seem to be indifferent to the needless deaths and suffering of a million people. And it gets worse. Global warming is here and we are burning. Species are dying in numbers we can barely comprehend. In our children's lifetimes
 it is possible large parts of the planet might become uninhabitable. If we don't make drastic changes, it is possible that billions of people will die. Seriously.
